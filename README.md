@@ -1,4 +1,4 @@
-![Uploading image.png…]()
+![image](https://github.com/user-attachments/assets/c545de93-60c9-4a58-a8a0-7e4a3acbb399)
 
 
   ✨ Agente Receita Remix: Sua Cozinha Criativa e Sem Complicações! ✨
