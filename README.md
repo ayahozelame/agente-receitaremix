@@ -1,3 +1,5 @@
+![logomarca-receitaremix](https://github.com/user-attachments/assets/cb6b2dd2-ae5b-43fa-8515-6530d9fa50d9)
+
   ✨ Agente Receita Remix: Sua Cozinha Criativa e Sem Complicações! ✨
 
    Cansado(a) de encarar a geladeira e pensar: "O que eu vou cozinhar hoje?" 😩
