@@ -1,4 +1,4 @@
-![logomarca-receitaremix](https://github.com/user-attachments/assets/cb6b2dd2-ae5b-43fa-8515-6530d9fa50d9)
+![image](https://github.com/user-attachments/assets/c3ce6608-49d7-4735-8793-8030ce8c4522)
 
   ✨ Agente Receita Remix: Sua Cozinha Criativa e Sem Complicações! ✨
 
